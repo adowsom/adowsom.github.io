@@ -1,0 +1,9 @@
+---
+title: "Yard\u0131m\u0131na muhtar yeti\u015fti"
+image: "https://s2.dmcdn.net/v/SPxvx1VGYOS1mnO0V/x240"
+vid_id: "x7vqcu3"
+categories: "news"
+tags: ["denizli","kep\u00e7e","muhtar"]
+date: "2020-08-26T10:41:05+03:00"
+---
+Denizli’nin Çivril ilçesinde otomobilin direksiyon hakimiyetini kaybeden sürücü, sulama kanalına düştü. Otomobil içerisinden yara almadan kurtulan sürücünün yardımına mahalle muhtarı yetişti. Muhtar üzerini çıkartarak suya girdi ve otomobili su kanalından çıkardığı sırada ilginç görüntüler ortaya çıktı.  <br>Olay, Çivril ilçesi Kocayaka Mahallesi’nde meydana geldi. Edinilen bilgiye göre, otomobili ile araziye giden bir vatandaş, çakıllı toprak yolda direksiyon hakimiyetini kaybederek sulama kanalına düştü. Otomobil içerisinden kendi imkanları ile çıkan sürücü yara almadan kurtuldu. O sırada sulama çalışması yapmak üzere yoldan geçen mahalle muhtarı Hasan Koç, otomobilin sulama kanalında olduğunu görünce durdu. Vatandaş, durumunu anlatmasının ardından çevredeki vatandaşlar ile birlikte otomobili su kanalından çıkarmak istediler. Mahallenin sulama birliğine ait olan kepçe ile muhtar Koç, üzerini çıkartarak sulama kanalına girdi. İlginç anların yaşandığı o sırada mahalle muhtarı otomobili kurtarmak için kepçenin uç kısmına zincir taktı ardından diğer ucunu ise otomobile bağladı. Bir süre otomobili sulama kanalından kurtarmak için çalışan mahalle muhtarı, çevredeki vatandaşların yardımı ile aracı çıkardı. Kurtarma çalışmaları sırasında çevredeki vatandaşlar muhtarı bir yandan tebrik ederek, 'muhtar görev başında, helal olsun muhtar sana' sözleri ile seslendiler. Sürücü ise ‘Allah razı olsun’ diyerek teşekkür etti. Aracın kurtarılma anı ve mahalle muhtarı Koç’un üzerini çıkartarak, kaza yapan vatandaşa yardımı ise cep telefonu ile anbean görüntülendi.   <br>
