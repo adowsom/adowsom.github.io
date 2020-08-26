@@ -1,8 +1,9 @@
-name: publish
+name: Jekyll Deploy
 
 on:
-  schedule:
-    - cron: "*/5 * * * *"
+  push:
+    branches:
+      - gh-pages
 jobs:
   build_and_deploy:
     runs-on: ubuntu-latest
