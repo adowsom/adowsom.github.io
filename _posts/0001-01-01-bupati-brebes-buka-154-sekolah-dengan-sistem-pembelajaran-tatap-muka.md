@@ -1,0 +1,9 @@
+---
+title: "Bupati Brebes Buka 154 Sekolah dengan Sistem Pembelajaran Tatap Muka"
+image: "https://s2.dmcdn.net/v/SPaAS1VHzY_iZ61jV/x240"
+vid_id: "x7vo9ss"
+categories: "news"
+tags: ["berita daerah","berita pekalongan","kompas"]
+date: "2020-08-27T19:01:02+03:00"
+---
+BREBES, KOMPAS.TV - Kegiatan belajar mengajar tatap muka perdana tingkat SMP di Kabupaten Brebes, Jawa Tengah, telah dibuka oleh Bupati Brebes Idza Priyanti, dengan di tandai pemotongan pita bunga melati di SMP Negeri 02 Brebes, Selasa pagi (18/08/2020). Total ada Seratus Lima Puluh Empat SMP, yakni Tujuh Puluh Tujuh SMP Negeri dan Tujuh Puluh Tujuh SMP Swasta yang tersebar di seluruh Kabupaten Brebes.   <br>Pembelajaran tatap muka ini dibuka menyusul surat keputusan bersama empat menteri yang memperbolehkan sekolah menggelar pembelajaran tatap muka di wilayah berzona kuning. Selain itu adanya dukungan dari orang tua Siswa yang menginginkan pembelajaran tatap muka. Bahkan masing masing orang tua siswa telah sepakat membuat surat mengikan pembelajaran tatap muka.   <br>Namun demikian, pihak sekolah juga masih melayani pembelajaran sistem dalam jaringan, Daring, atau Online bagi Siswa yang tidak diizinkan oleh orang tuanya mengikuti pembelajaran tatap muka. Bupati Brebes, Idza Priyanti mengatakan seluruh SMP yang melaksanakan pembelajaran tatap muka telah siap dengan sarana prasarana Protokol Kesehatan .   <br>Sejumlah Siswa mengaku senang dengan dibukanya pembelajaran tatap muka. karena materi pelajaran lebih mudah ditangkap dibanding dengan pembelajaran daring, Siswa tidak bisa berinteraksi langsung dengan Guru yang mengajar.   <br>Pembelajaran tatap muka di sekolah, dilaksanakan secara bergantian. para Siswa, hanya melaksanakan belajar tatap muka seminggu Tiga kali, untuk masing masing kela. Dalam sekali pertemuan Siswa mendapatkan Tiga materi mata pelajaran.   <br>
