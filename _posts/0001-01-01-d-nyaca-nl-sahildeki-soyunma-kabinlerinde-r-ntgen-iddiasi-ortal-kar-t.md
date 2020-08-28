@@ -1,0 +1,9 @@
+---
+title: "D\u00fcnyaca \u00fcnl\u00fc sahildeki soyunma kabinlerinde 'r\u00f6ntgen' iddiasi ortal\u0131\u011f\u0131 kar\u0131\u015ft\u0131rd\u0131"
+image: "https://s1.dmcdn.net/v/SPoA41VF_nicGvEFF/x240"
+vid_id: "x7vpi10"
+categories: "news"
+tags: ["\u00f6fkeli kalabal\u0131k","polis ekipleri","cankurtaran"]
+date: "2020-08-28T19:16:03+03:00"
+---
+-Şahsın yerdeki hali  <br>--Öfkeli kalabalığın tepkisi  <br>--Şahsa tokat atılması  <br>--detaylar  <br>( ANTALYA ) -Dünyaca ünlü sahildeki soyunma kabinlerinde 'röntgen' iddiasi ortalığı karıştırdı- Konyaaltı Sahili'nde soyunma kabinlerinin altından vatandaşlara baktığı iddia edilen şahıs, tekme-tokat dövüldü- Şüpheli, polis tarafından gözaltına alındı   ANTALYA    <br>- Antalya Konyaaltı Sahili’nde soyunma kabininde giyinenlere baktığı iddia edilen şüpheli, çevredeki vatandaşlar tarafından tekme-tokat dövüldü. ‘Bir şey yapmadım ağabey yemin ederim anahtarlarım düştü' diyerek kendini savunan şüpheli, öfkeli kalabalık tarafından yaka paça tutularak, polise teslim edildi. Polis, şüpheli şahsı gözaltına aldı.    Ortalığı karıştıran olay, bugün sabah saatlerinde Konyaaltı Sahili beach parkında meydana geldi. İddialara göre sahildeki tatilciler, bir şahsın soyunma kabinlerindeki giyinenleri eğilerek izlediğini fark etti. Çevredekiler ve cankurtaran ekipleri şahsı yaka paça tutup uzak bir noktaya götürdü ve polis ekiplerine ihbarda bulundu. Olayı gören çevredeki vatandaşlar ise şahsın etrafına toplandı. ‘Bir şey yapmadım ağabey yemin ederim anahtarlarım düştü' diyerek kendini savunan şahıs, öfkeli kalabalık tarafından tekme-tokat dövüldü. Kadınlar ise ‘Pislik, namussuz’ diyerek şahsa tepki gösterdi. O anlar da bazı vatandaşlar tarafından kaydedildi.  Şahıs, Muratpaşa İlçe Emniyet Müdürlüğüne bağlı Beach Park  yaya devriyeleri tarafından gözaltına alındı. Polis merkezine götürülen şüphelinin işlemleri sürüyor.  (HFV-SM-  <br>
