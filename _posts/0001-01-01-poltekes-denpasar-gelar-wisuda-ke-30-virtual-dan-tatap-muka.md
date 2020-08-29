@@ -1,0 +1,9 @@
+---
+title: "POLTEKES Denpasar Gelar Wisuda ke 30 Virtual Dan Tatap Muka"
+image: "https://s1.dmcdn.net/v/SQ1xp1VGuKQyzw8C9/x240"
+vid_id: "x7vqvw3"
+categories: "news"
+tags: ["beritadaerah","pendidikan","bali"]
+date: "2020-08-29T10:13:02+03:00"
+---
+Denpasar, KOMPASTV - Prosesi wisuda ke 30 dilangsungkan di aula kampus politeknik kesehatan denpasar, selasa pagi, sebanyak 765 wisudawan diwisuda, namun tidak semua wisudawan dihadirkan dalam prosesi wisuda ini   <br>Selain tatap muka, prosesi wisuda juga dilakukan secara daring, selain penerapan protokol kesehatan, upaya ini sekaligus memanfaatkan tekhnologi di masa pandemi   <br>Suasana berbeda ini dirasakan wisudawan, namun mereka tetap gembira karena berhasil menyelesaikan studi di poltekes denpasar   <br>Direktur POLTEKKES denpasar anak agung ngurah kusumajaya menyebut, lulusan poltekes denpasar merupakan lulusan terbaik yang siap mengabdi di bidang kesehatan, dan siap membantu rumah sakit dalam melayani masyarakat   <br>potekkes denpasar juga menghasilkan lulusan terbaik di masing masing program studi/ yakni ni luh putu putri widiari dari program studi keperawatan dengan ipk 3 koma 98/ ni putu sarina kuntari dewi dari program studi kebidanan dengan ipk 3 koma 79/ ni komang nia trijayani dari program studi gizi dan dietetika dengan ipk 3 koma 95/ dewi lestari dari program studi sanitasi lingkungan dengan ipk 3 koma 95/ i gusti ayu eka darma yanti dari program studi keperawatan dengan ipk 3 koma 83/ ni nyoman ayu trisna sari dari program studi kesehatan gigi dengan ipk 3 koma 91/ ni luh gede mia anggreni dari program studi kesehatan gigi dengan ipk 3 koma 80/ ni kadek noviari dari program studi gizi dengan ipk 3 koma 93/ desak ayu ari putri dari program studi sanitasi dengan ipk 3 koma 86/ serta ni kadek ari dwiyanti dari program studi teknologi laboratorium medis dengan ipk 3 koma 98   <br>#poltekes #denpasar #wisuda #virtual #wisudaonline #mahasiswa   <br>
