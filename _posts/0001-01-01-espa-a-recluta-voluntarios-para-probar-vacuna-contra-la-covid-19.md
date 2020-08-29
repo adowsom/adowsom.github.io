@@ -1,0 +1,9 @@
+---
+title: "Espa\u00f1a recluta voluntarios para probar vacuna contra la covid-19"
+image: "https://s1.dmcdn.net/v/SQg-91VIdB1iMwcCW/x240"
+vid_id: "x7vuhl5"
+categories: "news"
+tags: ["efe","nacional","coronavirus"]
+date: "2020-08-30T02:41:03+03:00"
+---
+Madrid, 29 ago (EFE).- España autorizó este viernes el primer ensayo clínico en humanos para una vacuna anticovid, en el que participarán 190 voluntarios, mientras el avance de la pandemia sigue alcanzando récord de contagios, con 3.829 nuevos casos en las últimas 24 horas, y los fallecidos superan ya los 29.000.  <br>El Ministerio español de Sanidad registró ayer otros 9.779 positivos, el mayor incremento de esta segunda ola de coronavirus, y suma 33.850 casos en esta semana, 439.286 desde el inicio de la enfermedad.  <br>La presión asistencial subió un punto porcentual en todo el territorio, pasando del 5 al 6 por ciento, después de haberse producido 188 nuevos ingresos, y las camas ocupadas por pacientes con covid-19 son 6.224, de las que 751 son de UCI, de acuerdo al balance oficial.  <br>Madrid sigue acaparando la mayor parte de los nuevos contagios, un 30 por ciento de los notificados en las últimas 24 horas, y la presión hospitalaria en la capital española aumenta un punto, hasta el 14 por ciento.  <br>En toda la región, las restricciones al ocio nocturno y a fumar en la calle serán de aplicación inmediata después de que el Tribunal Superior de Justicia ratificara hoy la orden del gobierno autonómico que había sido suspendida por un magistrado hace una semana, al considerar que no requieren autorización judicial.  <br>   <br>INCLUYE DECLARACIONES DEL DIRECTOR DEL INSTITUTO DE INVESTIGACIÓN DEL HOSPITAL UNIVERSITARIO MARQUÉS DE VALDECILLA EN SANTANDER, GALO PERALTA  <br>   <br>EDICIÓN Y LOCUCIÓN: ROSA IRENE MONSIVÁIS
