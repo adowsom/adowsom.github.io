@@ -1,0 +1,9 @@
+---
+title: "Hutang dan Materi Jadi Motif Pelaku Pembunuhan Satu Keluarga di Sukoharjo"
+image: "https://s2.dmcdn.net/v/SPx4j1VItg4nRikoS/x240"
+vid_id: "x7vqa7h"
+categories: "news"
+tags: ["SUKOHARJO","PEMBUNUHAN","BERITA KRIMINAL"]
+date: "2020-08-30T13:08:03+03:00"
+---
+SUKOHARJO, KOMPAS.TV - Satu keluarga yang terdiri dari empat orang ditemukan tewas di rumahnya, Desa Duwet, Sukoharjo, Jawa Tengah.   <br>Polisi menangkap pelaku yang merupakan tetangga korban.   <br>Tersangka berinisial H-T ditangkap tiga jam setelah polisi melakukan olah TKP.    <br>Motif pembunuhan dilatar belakangi utang dan pelaku ingin menguasai mobil korban.   <br>Pembunuhan terjadi pada Rabu (19/08/20) dini hari.   <br>Tersangka ditangkap di wilayah Kecamatan Baki, Sukoharjo, tidak jauh dari TKP pembunuhan.   <br>Warga Desa Duwet, Sukoharjo dikejutkan dengan tewasnya tetangga mereka.   <br>Korban adalah satu keluarga yang terdiri dari ayah ibu dan dua anak yang masih kelas 4 SD, dan siswa taman kanak-kanak.   <br>Keempatnya ditemukan tak bernyawa di dalam rumah mereka.   <br>Dari keterangan warga, pada Selasa (18/08/20) malam banyak orang berkunjung ke rumah korban.   <br>Keesokannya kembali ada tamu bermobil datang ke rumah korban.   <br>Pada Jumat malam, warga mulai curiga, karena mencium bau tidak sedap dari dalam rumah korban.   <br>Mereka terkejut melihat empat orang sudah tidak bernyawa, dengan luka tusukan.   <br>Sabtu dini hari polisi mengevakuasi keempat jenazah korban dan menggelar olah TKP.   <br>Polisi meminta kerjasama warga, untuk bisa mengungkap kasus ini.   <br>Kesehariannya, satu korban yang merupakan kepala keluarga, dikenal sebagai pengusaha rental mobil, yang sering kedatangan banyak tamu.   <br>Sehingga warga sekitar tidak curiga bila ada banyak orang di rumah korban pada malam kejadian.   <br>
