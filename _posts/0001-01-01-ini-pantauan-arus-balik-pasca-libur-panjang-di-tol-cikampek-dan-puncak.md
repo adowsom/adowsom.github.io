@@ -1,0 +1,9 @@
+---
+title: "Ini Pantauan Arus Balik Pasca Libur Panjang di Tol Cikampek dan Puncak"
+image: "https://s1.dmcdn.net/v/SPz6K1VGbsPqjTliJ/x240"
+vid_id: "x7vqglw"
+categories: "news"
+tags: ["puncak arus balik","cikampek","cipali"]
+date: "2020-08-30T07:58:06+03:00"
+---
+KOMPAS.TV - Jelang berakhirnya libur panjang Tahun Baru Islam 1442 Hijriyah dan libur akhir pekan, arus lalu lintas Tol Jakarta Cikampek dari arah Bandung dan Cirebon mulai ramai oleh kendaraan warga yang akan kembali ke Jakarta.   <br>Dari kilometer 62 tol jakarta cikampek pada Minggu siang terlihat keramaian arus lalu lintas.   <br>Kendaraan balik menuju Jakarta mulai memenuhi jalan tol di kilometer 66, dimana terjadi pertemuan arus dari Bandung dan Cirebon, hingga KM 48 jelang tol layang japek.   <br>Kendati ramai namun arus lalulintas tol Jakarta-Cikampek masih terpantau cukup lancar.   <br>Meski begitu, mengantisipasi semakin padatnya kendaraan, sejumlah rekayasa lalu lintas disiapkan satlantas Polres Karawang, seperti contraflow dan buka tutup rest area yang berada di KM 62 dan KM 52 tol Japek arah Jakarta.   <br>Semakin sore, kendaraan yang melintas di tol Jakarta-Cikampek semakin padat hingga membuat kemacetan di Kilometer 52.   <br>Arus kendaraan dari Bandung dan Palimanan pun terus bertambah.   <br>Untuk mengurai kemacetan, Kepolisian Jasa Marga memberlakukan sistem rekayasa lalulintas, salah satunya dengan menutup rest area 52 arah Jakarta yang menjadi penyebab kemacetan.   <br>Penutupan akan diberlakukan dari minggu sore hingga senin besok.   <br>Di jalur Puncak, Bogor, polisi mulai memberlakukan sistem satu arah atau one way ke bawah sejak Minggu siang, untuk mengurai kepadatan kendaraan yang hendak balik menuju jakarta.   <br>Sistem ini diberlakukan situasional dengan melihat kondisi arus lalu lintas yang ada.   <br>Jika arus kendaraan sudah lancar kembali, maka one way akan dicabut sehingga kendaraan bisa kembali melintasi jalur puncak di kedua arah.   <br>
