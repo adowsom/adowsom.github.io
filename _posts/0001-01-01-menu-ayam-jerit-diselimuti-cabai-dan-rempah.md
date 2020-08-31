@@ -1,0 +1,9 @@
+---
+title: "Menu Ayam Jerit Diselimuti Cabai Dan Rempah"
+image: "https://s1.dmcdn.net/v/SQJcl1VHao3ruiwgK/x240"
+vid_id: "x7vsfqn"
+categories: "news"
+tags: ["AYAM JERIT","MENU KHAS MAKASSAR","KULINER MAKASSAR"]
+date: "2020-09-01T00:54:06+03:00"
+---
+MAKASSAR, KOMPAS.TV - Mencari menu yang enak anda bisa mencoba ayam jeriit, di beri namanya ayam jeriit karena konon saat di makan ayam ini akan membuat anda menjerit , jeriitan pedas ayam jerit ini karena exra cabe yang di berikan ,ayam berselimut cabe ini bisa menjadi pilihan kuliner enak di kota makassar.   <br>Rumah makan di jalan urip sumoharjo kelurahan panaikkang kecamatan panakukkang kota makassar ini menawarkan kuliner ayam extra pedas, sesuai namanya ayam jerit di bisa membuat lidah anda menjerit enak dan pedas saat mencicipi ayam jeriit. Banyaknya cabai yang dituangkan membuat ayam goreng gurihnya tak terlihat.,   <br>Meski dipenuhi dengan sejumlah rempah seperti sere, daun bawang dan cabai namun bagi anda yang akan memesan ayam menjerit dapat memilih tingkat kepedisannya dari level satu hingga level 10. Menurut penjualnya, ayam jerit level satu akan menggunakan satu cup cabai sementara untuk level 10 akan menggunakan setengah kilogram cabai.   <br>Meski menyajikan menu ayam goreng yang cukup pedas namun menu ayam goreng jerit ini menjadi idola di tempat ini.   <br>Ayam jeriit tak hanya terkenal di kota makassar namun ayam jeriiit ini bahkan sudah terkenal hingga ke luar sulawesi selatan. Banyak pelanggan yang memesan ayam dan bumbu cabe jeriitnya untuk di kirim ke jakarta.   <br>Untuk memperkaya menu, pemilik menu ayam jerit ini juga menyediakan menu lainnya seperti ayam jeri kampung, sop ayam kampung, tempe dan tahu jeriit , ampela dan hati ayam jeriit dan telur goreng jeriit, semua dengan ciri khas pedas yang mengugah lidah.   <br>#AYAMJERIT   <br>#KULINERMAKASSAR   <br>#MAKANANKHASMAKASSAR   <br>
