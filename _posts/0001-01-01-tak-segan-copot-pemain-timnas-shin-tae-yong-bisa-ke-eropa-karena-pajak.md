@@ -1,0 +1,9 @@
+---
+title: "Tak Segan Copot Pemain Timnas, Shin Tae-yong: Bisa ke Eropa karena Pajak Rakyat, Harus Tanggungjawab"
+image: "https://s2.dmcdn.net/v/SQkjX1VIp68GuvZBz/x240"
+vid_id: "x7vutep"
+categories: "news"
+tags: ["shin tae-yong","pelatih timnas indonesia","timnas indonesia"]
+date: "2020-08-31T15:26:05+03:00"
+---
+KOMPAS.TV - Wajibkan pemain berlatih serius, Shin Tae-yong tak segan coret pemain selama di Kroasia.   <br>Pernyataan ini disampaikan pelatih timnas asal Korea saat latihan terakhir jelang bertolak ke Kroasia.   <br>Sebanyak 30 pemain Timnas Indonesia U-19 proyeksi Piala Dunia U-20, bertolak ke Kroasia, Sabtu malam.   <br>Mereka akan melaksanakan training camp selama 50 hari.   <br>Sebelum berangkat, pelatih Timnas Indonesia Shin Tae-yong secara tegas mengatakan tidak akan segan untuk mencoret pemainnya, meski berada di Eropa.   <br>Shin tidak ingin ada satu pun pemain yang tidak bersungguh sungguh dalam menjalani program.   <br>Pernyataan ini disampaikan pelatih asal Korea di Jakarta, Jumat sore, usai memimpin tim berlatih bersama.   <br>&quot;Tidak menutup kemungkinan pemain dipulangkan jika tidak bisa mengikuti latihan ini dengan baik. Mereka bisa ke Eropa karena pajak rakyat Indonesia, jadi mereka harus punya rasa tanggung jawab. Jika latihan tidak serius maka pasti akan dipulangkan,&quot; kata Shin Tae-yong.   <br>Selama tiga pekan pemusatan latihan di Jakarta, Shin telah mencoret sebelas pemain, termasuk beberapa mantan pilar Timnas U-16 era Fakhri Husaini.   <br>Meski menuai pro dan kontra, Shin mengaku tidak menutup pintu untuk para pemain yang tidak dibawa ke Kroasia, untuk mengenakan jersey merah putih.   <br>Adapun selama pemusatan latihan di Jakarta, tim pelatih menilai fisik, stamina serta agresivitas para pemain mengalami perkembangan yang cukup pesat.   <br>
