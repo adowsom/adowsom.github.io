@@ -1,0 +1,9 @@
+---
+title: "Soal Gejala Corona Happy Hypoxia, Dokter Paru: Untuk Deteksi Oksigen Harus oleh Ahli!"
+image: "https://s1.dmcdn.net/v/SQhvx1VJEUeekpLYn/x240"
+vid_id: "x7vukjf"
+categories: "news"
+tags: ["happy hypoxia","gejala happy hypoxia","gejala baru corona"]
+date: "2020-08-31T21:04:03+03:00"
+---
+KOMPAS.TV - Tanpa demam, batuk, flu, atau  gejala umum layaknya pasien Covid -19 lainnya, tiga warga Banyumas yang terinfeksi Corona ini meninggal secara mendadak.   <br>Setelah diperiksa, ketiganya diketahui mengalami gejala &quot;Happy Hypoxia&quot;, atau penurunan kadar oksigen.   <br>Happy Hypoxia , merupakan gejala baru yang kini ditemukan di beberapa pasien Covid-19.   <br>Pihak rumah sakit pun, baru menemukan pasien dengan gejala ini, setelah dilakukan pemeriksaan saturasi oksigen dengan alat pulse Oxymeter.   <br>Jika pada kondisi normal, kadar oksigen dalam darah adalah 95 sampai 100 persen.   <br>Namun pada penderita dengan gejala Happy Hypoxia , kadar oksigennya bisa turun sampai dibawah 50 persen.   <br>Gejala ini sering menipu.   <br>Karena pasien masih terlihat baik-baik saja, dan masih dapat beraktivitas.   <br>Padahal sebenarnya pasien  sedang mengalami penurunan kadar oksigen dalam darah.   <br>Namun lambat laun kondisi pasien bisa semakin memburuk karena kadar oksigen sudah semakin anjlok.   <br>Bahkan nyawa pasien pun terancam, jika tidak segera ditangani.   <br>Sejauh ini, pemerintah belum merespons adanya fenomena penderita Covid-19, dengan gejala Happy Hypoxia.   <br>Pemerintah pun mengklaim, kasus aktif dan kasus sembuh Covid-19 di Indonesia, sudah di bawah rata-rata dunia.   <br>Per hari ini, penambahan kasus positif Covid-19 di Indonesia, berdasarkan data dari situs Kementerian Kesehatan, ada 3.308 orang.   <br>Angka ini, adalah rekor tertinggi penambahan kasus positif Covid-19 , sejak kasus Corona pertama kali diumumkan di Indonesia.   <br>
