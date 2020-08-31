@@ -1,0 +1,9 @@
+---
+title: "Gaji Dibawah 5 Juta? Akan Dapat Subsidi Dari Presiden"
+image: "https://s2.dmcdn.net/v/SQ9Ea1VJAjrDR3-cf/x240"
+vid_id: "x7vrixw"
+categories: "news"
+tags: ["beritadaerah","bali","gaji"]
+date: "2020-08-31T11:08:04+03:00"
+---
+Badung, KOMPASTV -  Program subsidi gaji pekerja dengan upah dibawah 5 juta rupiah rencananya akan diluncurkan presiden joko widodo. Pada 25 agustus 2020 besok. Menteri ketenaga kerjaan RI Ida Fauziyah menyebut sejauh ini sudah 7 koma 4 juta pekerja terdaftar dri program subsidi gaji 6 ratus ribu rupiah ini.   <br>Menteri ketenagakerjaan. Ida Fauziyah menyebut. Pencairan subsidi upah bagi pekerja dengan gaji dibawah 5 juta. Rencananya akan dilaunching oleh presiden joko widodo hari ini.   <br>Ida fauziyah menambahkan sejauh ini data yang masuk sudah mendekati 15 juta. Dan yang telah di validasi sebanyak 7,4 juta rekening . Proses pencairan akan ditransfer langsung melalui rekening penerima program.   <br>Dalam program ini pemerintah menganggarkan anggaran sebesar 37,7 triliun untuk 15 juta lebih pekerja dengan gaji dibawah 5 juta dan pekerja formal yang terdaftar sebagai peserta bpjs ketenagakerjaan. Sementara pekerja yang dirumahkan dan tidak mendapat gaji telah diikut sertakan di kartu prakerja.   <br>Sementara itu kepala dinas tenaga kerja dan esdm provinsi bali menyebut upah minimum kabupaten kota di bali tertinggi hanya 3 juta . Sedangkan untuk program kartu prakerja dari gelombang 1 hingga 3. Dari bali yang lolos sebanyak 11 ribu 152 orang.   <br>Dinas tenaga kerja dan esdm provinsi bali akan berkoordinasi dengan bpsj ketenagakerjaan terkait data jumlah pekerja di bali. Sejauh ini menurut badan pusat statistik hingga bulan februari 2020 . Jumlah angkatan kerja di bali mencapai 2 juta 591 orang lebih. Sedangkan angka pengangguran di bali mencapai 31 ribu lebih.   <br>#gaji #pendapatan #gajidibawah5juta #subsidigaji #subsidipemerintah   <br>
