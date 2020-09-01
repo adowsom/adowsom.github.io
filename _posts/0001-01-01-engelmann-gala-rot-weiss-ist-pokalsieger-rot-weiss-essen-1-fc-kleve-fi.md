@@ -1,0 +1,9 @@
+---
+title: "Engelmann-Gala: Rot-Weiss ist Pokalsieger Rot-Weiss Essen - 1. FC Kleve (Finale, Niederrheinpokal)"
+image: "https://s2.dmcdn.net/v/SQ20a1VHWjyGCm7gt/x240"
+vid_id: "x7vqw4k"
+categories: "sport"
+tags: ["Engelmann-Gala:","Rot-Weiss","Pokalsieger"]
+date: "2020-09-01T12:55:05+03:00"
+---
+ALLE VIDEOS IMMER 48 STD. VOR DAILYMOTION SEHEN  <br>❗ ➡  ⬅ ❗  <br>Rot-Weiss Essen holt zum 10. Mal den Pokal  <br>Niederrheinpokal, Finale (22.08.2020)  <br>Ergebnis: 3:1 (1:0)  <br>Tore:  <br>1:0 Simon Engelmann  <br>1:1 Nadzad Dragovic  <br>2:1 Simon Engelmann  <br>3:1 Simon Engelmann  <br>Aufstellung Rot-Weiss Essen:  <br>1 Daniel Davari, 4 Felix Backszat, 5 Marco Kehl-Gomez, 7 Kevin Grund, 11 Simon Engelmann, 14 Daniel Heber, 18 Amara Condé, 21 Sandro Plechaty, 24 Alexander Hahn, 27 Jonas Behounek, 38 Oghuzan Kefkir  <br>Ersatzspieler:  <br>22 Jakob-Karl Gerhard Golz, 3 Felix Herzenbruch, 6 Dennis Grote, 8 Cedric Harenbrock, 9 Marcel Platzek, 10 Jan-Lucas Dorow, 28 Ayodele Max Adetula, 29 Jan Neuwirt, 30 Hamadi Dahmani, 33 Joshua Endres, 34 Jonas Hildebrandt  <br>Trainer:  <br>Christian Neidhart  <br>Aufstellung 1. FC Kleve:  <br>1 Ahmet Taner, 4 Nedzad Dragovic, 6 Fabio Forster, 7 Pascal Hühner, 8 Niklas Klein-Wiele, 14 Mike Terfloth, 16 Kai Robin Schneider, 17 Tim Haal, 18 Ryo Terada, 23 Sezai Kezer, 27 Luca Plum  <br>Ersatzspieler:  <br>12 Andre Barth, 3 Leander Derksen, 11 Sebastian Santana, 19 Pierre Heyer, 20 Calvin Top, 21 Luca Thuyl, 22 Dano Evrard, 24 Albrecht Marten, 25 Christian Emmers  <br>Trainer:  <br>Umut Akpinar  <br>Produktion: Magdalena Austermann  <br>Kommentar: Luis Bracht  <br>⚽ #WODASLEBENFUSSBALLSPIELT  <br>Homepage:    <br>Instagram:   <br>Facebook:   <br>YouTube:   <br>Twitter:    <br>Bearbeitet mit: VEGAS Pro 16 //   <br>Gelb, gut, günstig! -10% Rabatt auf ALLE Mietungen und Buchungen bei unserem Partner STARCAR - Autovermietung // CODE: KickTV // 
